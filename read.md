@@ -1,1 +1,1 @@
-I love Jesus！
+I love God!
